@@ -1,0 +1,2 @@
+# STAR_STAR_COIN
+星星币
